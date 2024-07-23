@@ -61,8 +61,7 @@ We look forward to the opportunity to discuss how we can work together to elevat
 
 Emmanuel Osemudiamen 
 Technical writer 
-eosemudiamen990@gmail
-com
+eosemudiamen990@gmail.com
 08027589486  
 
 
